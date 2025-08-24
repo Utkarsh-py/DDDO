@@ -1,2 +1,2 @@
 # DDDO
-wasup i ma jusp playing
+wasup i am just playing
